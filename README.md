@@ -6,7 +6,7 @@ I promised my colleagues that I'll share gofundme.com page to my Tesla once I ge
 
 Also I haven't wrote in a while and [I miss my car](https://www.instagram.com/p/BVKrIlChRFJ) :-(
 
-Though it is just for fun, but that doesn't stop me from setting up venmo & cash account :-)
+Though it is just for fun, but that doesn't stop me from setting up [Venmo](https://venmo.com/palaniraja) & [Cash](https://cash.app/$palaniraja) account :-)
 
 
 ## Why Tesla?
