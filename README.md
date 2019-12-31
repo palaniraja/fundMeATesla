@@ -47,8 +47,9 @@ Hear me out. there is a multifold reason.
 
 with all the uncertainty (ignoring my personal reasons) I am hesitant to get one on my own.
  
-On a side note, if you are one like [Jack Donaghy](https://www.youtube.com/watch?v=abiXFzuhRxQ) and willing to negotiate for me with my next employer, I'll give you a $1000 and I am serious. I am bad at negotiation; I am a good resource, I work more than whatever they pay (if I may blow one's own trumpet here), also I don't want to talk to HR/pay negotiator.
+On a side note, if you are one like [Jack Donaghy*](https://www.youtube.com/watch?v=abiXFzuhRxQ) and willing to negotiate for me with my next employer, I'll give you a $1000 and I am serious. I am bad at negotiation; I am a good resource, I work more than whatever they pay (if I may blow one's own trumpet here), also I don't want to talk to HR/pay negotiator.
 
+* - 🙄: I know, its not the right scenario, but this is the clip I found on youtube.
 
 ## What if you reach your goal?
 
@@ -74,6 +75,6 @@ The lucky person from the future, write me when the time is ready, that you'll l
 [Venmo](https://venmo.com/palaniraja) | [Cash](https://cash.app/$palaniraja)
 
 
---
+---
 
-Wish you all, A Happy New Year 2020. Go and change the world for Good.
+P.S: Wish you all, A Happy New Year 2020. Go and change the world for Good.
