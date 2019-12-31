@@ -35,7 +35,7 @@ A Red, Model 3, Extended range, Dual motor
 
 I am being reasonable here. I can’t ask more, but that would be what they call the stretch goal.
 
-Like [Neo](https://youtu.be/YgJ5ZEn67tk?t=36) in system, these days whenever a Red Mazda (they have the best red btw) crosses I lose and admire the beauty of the color, and the same reason why [my car](https://www.instagram.com/p/BVKrIlChRFJ) is also red.
+Also like [Neo](https://youtu.be/YgJ5ZEn67tk?t=36) in system, these days whenever a Red Mazda (they have the best red btw) crosses me, I admire the beauty of the color, and the same reason why [my car](https://www.instagram.com/p/BVKrIlChRFJ) is also red.
 
 
 ## Why can’t you buy your own?
@@ -47,7 +47,7 @@ Hear me out. there is a multifold reason.
 
 with all the uncertainty (ignoring my personal reasons) I am hesitant to get one on my own.
  
-on a side note, if you are [Jack](https://www.youtube.com/watch?v=abiXFzuhRxQ) and willing to negotiate for me with my next employer, I'll give you a $1000 and I am serious. I am bad at negotiation; I am a good resource, I work more than whatever they pay (if I may blow one's own trumpet here) don't want to talk to HR.
+On a side note, if you are one like [Jack Donaghy](https://www.youtube.com/watch?v=abiXFzuhRxQ) and willing to negotiate for me with my next employer, I'll give you a $1000 and I am serious. I am bad at negotiation; I am a good resource, I work more than whatever they pay (if I may blow one's own trumpet here), also I don't want to talk to HR/pay negotiator.
 
 
 ## What if you reach your goal?
