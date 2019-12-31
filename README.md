@@ -31,7 +31,7 @@ A Red, Model 3, Extended range, Dual motor
 ![Model 3](assets/custom-model3.png)
 
 
-## Why not Blue Model S, the one you fell in love?
+## Why not Blue Model S, the one you fell in love with?
 
 I am being reasonable here. I can’t ask more, but that would be what they call the stretch goal.
 
