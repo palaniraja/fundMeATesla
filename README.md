@@ -2,7 +2,9 @@
 
 ## What is this about?
 
-I promised my colleagues that I'll share gofundme.com page to my Tesla once I get my driving license. I got the license awhile back, but was busy at work, didn't complete this page. As a New Year is dawning, I thought I could close this pending activity to close this with a satisfaction of clearing an item from my evergrowing backlog.
+I promised my colleagues that I'll share gofundme.com page to my Tesla once I get my driving license. I got the license awhile back, but was busy at work, didn't complete this page. 
+
+As a New Year is dawning, I thought I could close this pending activity to close this with a satisfaction of clearing an item from my evergrowing backlog.
 
 Also I haven't wrote in a while and [I miss my car](https://www.instagram.com/p/BVKrIlChRFJ) :-(
 
@@ -24,9 +26,9 @@ Trust me, I was woke even before Greta Thunberg, but she gave us a picture of a 
 
 ## Which Tesla?
 
-I have always struggle internally with decision paralysis whenever I need to take any big decisions, I tend to overthink, but not this time. Never in any of my decision I am clear as this one.
+I have always struggle internally with decision paralysis whenever I need to take any big decisions, I tend to overthink, but not this time. Never in my life, I have a clear winner of a decision as this one.
 
-A Red, Model 3, Extended range, Dual motor
+A Red, Model 3, Extended range, Dual motor.
 
 ![Model 3](assets/custom-model3.png)
 
@@ -47,13 +49,13 @@ Hear me out. there is a multifold reason.
 
 with all the uncertainty (ignoring my personal reasons) I am hesitant to get one on my own.
  
-On a side note, if you are one like [Jack Donaghy*](https://www.youtube.com/watch?v=abiXFzuhRxQ) and willing to negotiate for me with my next employer, I'll give you a $1000 and I am serious. I am bad at negotiation; I am a good resource, I work more than whatever they pay (if I may blow one's own trumpet here), also I don't want to talk to HR/pay negotiator.
+On a side note, if you are the one like [Jack Donaghy ^](https://www.youtube.com/watch?v=abiXFzuhRxQ) and willing to negotiate for me with my next employer, I'll give you a $1000 and I am serious. I am bad at negotiation; I am a good resource, I work more than whatever they pay (if I may blow one's own trumpet here), also I don't want to talk to HR/pay negotiator.
 
-* - 🙄: I know, its not the right scenario, but this is the clip I found on youtube.
+^ 🙄: I know, its not the right scenario, but this is the clip I found on youtube.
 
 ## What if you reach your goal?
 
-I walk to Tesla and ask one to deliver ASAP 👍
+I _walk_ to Tesla and ask one to deliver ASAP 👍
 
 
 ## What are your willing to pay?
@@ -62,13 +64,15 @@ Insurance, DMV fee, extra for vanity plate and Gasoline :-)
 
 ## What would be your vanity plate?
 
-**Darlene** - the bad ass sister of Elliot Alderson from [Mr.Robot](https://www.imdb.com/title/tt4158110/). If one is not available, or some variation of that or I'll settle for **Juliana** from [The Man in the High Castle](https://www.imdb.com/title/tt1740299/) 
+**Darlene** - the bad ass sister of Elliot Alderson from [Mr.Robot](https://www.imdb.com/title/tt4158110/). 
+
+If one is not available, or some variation of that or I'll settle for **Juliana** from [The Man in the High Castle](https://www.imdb.com/title/tt1740299/) 
 
 ## What would you do this Tesla when it is time to leave USA?
 
 Like [Andy](https://www.youtube.com/watch?v=Vwu385K3Oq0) in Toy Story 3, handover his toys to the give to the kid, I will handover it for free. 
 
-The lucky person from the future, write me when the time is ready, that you'll love this beauty and you take of this as my as I much I would.
+The lucky person from the future, write me when the time is ready, that you'll love this beauty and you take care of the car and love as much I would.
 
 ## How can you help me if you can
 
