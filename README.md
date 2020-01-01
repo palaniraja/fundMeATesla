@@ -37,7 +37,9 @@ A Red, Model 3, Extended range, Dual motor.
 
 I am being reasonable here. I can’t ask more, but that would be what they call the stretch goal.
 
-Also like [Neo](https://youtu.be/YgJ5ZEn67tk?t=36) in system, these days whenever a Red Mazda (they have the best red btw) crosses me, I admire the beauty of the color, and the same reason why [my car](https://www.instagram.com/p/BVKrIlChRFJ) is also red.
+Also like [Neo](https://youtu.be/YgJ5ZEn67tk?t=36) in system, these days whenever a red car crosses me, I admire the beauty of color, and the same reason why [my car](https://www.instagram.com/p/BVKrIlChRFJ) is also red.
+
+Btw, only Mazda has the good Red in USA at the moment.
 
 
 ## Why can’t you buy your own?
